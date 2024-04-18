@@ -1,0 +1,1 @@
+Waraq Dawali, also known as stuffed grape leaves, are tender grape leaves filled with a savory mixture of rice, herbs, and sometimes meat, creating a flavorful and comforting Middle Eastern delicacy.
